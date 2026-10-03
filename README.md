@@ -51,4 +51,4 @@ More projects coming soon.
 
 ---
 
-> Building. Learning. Evolving.
+> Build with purpose. Learn continuously. Evolve constantly.
